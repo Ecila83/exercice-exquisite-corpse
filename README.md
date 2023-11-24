@@ -7,3 +7,7 @@ Vous allez subir une trahison d'un de vos proche mais celà resulteras sur du po
 Je ne suis pas sur de croire a ces conneries mais en même temps je vais déménagé dans la semaine et j'ai trouvé un nouvel emplois pas très loin de chez moi alors ...
 
 Après ma journée de travail et une bonne douche, je me pose devant la télévision et repense à cet horoscope du jour qui m'a intriguée. Le lendemain matin je suis partie 10 minutes plus tôt au travail pour avoir le temp d'acheter l'horoscope du jour et me rassurer sur la prédiction d'hier.
+
+malheureusement l'horoscope du jour affichait aussi un mauvais présage, c'est alors que je reçois un appel masqué, une voix que je reconnais, il s'agit de mon ami tom m'annonçant son déménagement dans un autre pays et qu'il ne souhaite plus me voir. <br>
+*1 semaine plus tard* <br>
+j'ai pris conscience que c'était un mal pour un bien, pour mieux me retrouver.
