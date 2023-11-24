@@ -1,1 +1,3 @@
-# exercice-exquisite-corpse
+# Horoscope
+
+Ce matin, je me suis levée de mauvais poil, car mon réveille n’a pas sonné et paf juste le temps de boire un café, faire mes cheveux tout en marchant vers la gare pour ne pas rater mon train. Sur place, je remarque que tous les panneaux indiquent des retards sur tous les trains !!! **Mais merdeee!!!** je n’ai même pas eu le temps de prendre mon livre en partant… je me rabat sur le journal métro et tombent sur la rubrique Horoscope. 
